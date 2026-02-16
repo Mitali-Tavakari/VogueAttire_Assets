@@ -1,0 +1,1 @@
+# VogueAttire_Assets
